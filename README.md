@@ -1,0 +1,6 @@
+<b> Abstract </b>
+<br>
+<p align=justify>
+La presente tesi ha come oggetto di studio la produzione letteraria di Enchi Fumiko 円地文子 (1905-1986), analizzata nell’ottica dei gender e queer studies a partire da una visione d’insieme del periodo storico d’interesse e del profilo biografico dell'autrice. Si sofferma a seguire sull'uso del topos letterario della possessione spiritica, ricorrente nelle opere della scrittrice, e sull’indagine sulla sessualità e l'identità di genere, in particolare quella femminile, in esse portata avanti anche e soprattutto attraverso il legame con la tradizione teatrale giapponese ed il dialogo intertestuale con autori a lei coevi. 
+L'obiettivo finale è quello di dimostrare come una scrittrice vissuta in Giappone nell'epoca Shōwa (1926-1989) abbia trattato tematiche estremamente attuali e come, seppur appartenendo ad un contesto ancora molto legato ad elementi tradizionali della cultura giapponese, sia possibile leggere le sue opere da una nuova prospettiva che permette di rivelare la modernità del pensiero che in esse confluisce. L’impegno ultimo è quello di ribadire l’importanza della sua produzione e dei messaggi da lei portati avanti nel panorama della letteratura novecentesca, nonché la sua innegabile influenza sulle generazioni a lei successive.
+</p>
